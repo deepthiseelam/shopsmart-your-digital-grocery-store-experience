@@ -1,1 +1,0 @@
-[Download or View the Documentation of our project from Google Drive](https://docs.google.com/document/d/1OD7jdYNQreVxv1M4iHovgMR7oA0z_ug-/edit?usp=sharing&ouid=106839977055215870248&rtpof=true&sd=true)
